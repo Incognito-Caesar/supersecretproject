@@ -1,13 +1,13 @@
 # supersecretproject13
 Grkg nqqrq gb vzntr svyr hfvat pbzznaq yvar
 
-- METHOD 1
+_METHOD 1_
 Vzntr rapbqvat gb urk (fcnprf sbe qryvzvgre)
 
-- METHOD 2
+_METHOD 2_
 Grkg nqqrq gb vzntr svyr hfvat pbzznaq yvar
 
-- METHOD 3
+_METHOD 3_
 Grkg nqqrq gb vzntr svyr hfvat pbzznaq yvar
 
 # Useful Links
