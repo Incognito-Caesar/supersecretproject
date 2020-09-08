@@ -3,7 +3,7 @@ Grkg nqqrq gb vzntr svyr hfvat pbzznaq yvar
 
 **METHOD 1**
 
-Vzntr rapbqvat gb urk (fcnprf sbe qryvzvgre)
+
 
 **METHOD 2**
 
